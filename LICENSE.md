@@ -1,4 +1,4 @@
-
+Download plants vs brainrots smart Script for plants vs brainrots, the best script available, featuring unlimited stamina and god mode. This powerful tool ensures you have the
 
 
 
